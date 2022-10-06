@@ -1,0 +1,1 @@
+A fun challenge involving mathematics. Very creative.
